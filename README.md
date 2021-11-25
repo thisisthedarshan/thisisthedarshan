@@ -4,5 +4,5 @@
 
 🌱 I’m currently studying as an Electonics Engineering student.
 
-📫 You can hit me up on [Instagram](https://instagram.com/thisisthedarshan)/[Facebook](https://facebook.com/thisisthedarshan)/[Telegram](https://t.me/thisisthedarshan)
+📫 You can hit me up on [Telegram](https://t.me/thisisthedarshan)
 
